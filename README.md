@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RikaMuller
-- 👀 I’m interested in starting as a virtual assistant
+- 👀 I’m interested in becoming a virtual assistant
 - 🌱 I’m currently learning anything I can, never to stagnate
 - 💞️ I’m looking to collaborate on projects given to me
 - 📫 How to reach me rikamuller22@gmail.com
